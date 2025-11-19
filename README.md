@@ -1,0 +1,1 @@
+# MAGIX-SOUND-FORGE-Audio-Studio-No-Trial
